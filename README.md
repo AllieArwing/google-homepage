@@ -1,1 +1,1 @@
-This is the first attempt of Admirable Allie Arwing.
+This is the first attempt of Admirable Allie Arwing. That's what this is.
